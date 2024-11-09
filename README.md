@@ -39,4 +39,8 @@ España:
 ¡2. seguridad y mantenimiento del medio ambiente: ¡ por favor, cumpla con el Código "[usuario y entorno comunitario seguro]", que habla de todas las "instrucciones de Seguridad comunitaria" y que todos deben ver y cumplir!
 ¡3. paz, felicidad y no ira, abogar juntos por una buena vida: por favor, no cree un ambiente malo para otros usuarios, ¡ gracias por su cooperación!
 ¡4. publicidad dañina para la prevención juvenil: sueño con abrir algunos anuncios a todos los usuarios, pero hemos abierto especialmente la interceptación de anuncios a los usuarios jóvenes o infantiles, ¡ pero si lo necesita, también puede abrir servicios especiales para usted!
-بالعربية
+Kulusabanangsesi:
+1.Hulufasomiko jijikomkophjhghg: dodoyomasese kuluiogulu mosoidosomaokao,kasadgopppojijikokomomo,hdhb,ayona sisiopop,hvpopo,zxhhj,domokomokolopolo,huhuhuhuh,dii!
+2.ftloii,madgetfrfrgygygjbghvgjhcgvghjhcfckgxgdf,viopkoloimimasesesese,driopgccc:gvvvgvgvgghhjjhvghhffghgggggghkkk,ghvggggggggvgvvggvggvg,hugvg!
+3.yoga,hbbbh:bikavvvg.00ju,jika,gggvjhgfcbbvbvgncbgcbf!
+4.mobj,biom.bghbhhbhbh8800.ii00.iiii.0099.oj98,zhggvvgsx,lxkxs,ldclk,lfvkl,fvlkk,gfcffff:klhgg,hhhghg,hghghg,hhgg,hhhhhh!
